@@ -1,4 +1,4 @@
-#### 1
+#### 1 setting up collab. TYPE ON LINE 3 FREDDY.
 #### 2
 #### 3
 #### 4
